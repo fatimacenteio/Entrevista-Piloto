@@ -1,3 +1,5 @@
+O meu Percurso Académico: Da Licenciatura ao Mestrado
+
 ## O que o levou a escolher a licenciatura que concluiu?
 
 Então, eu escolhi **Línguas e Leituras Europeias** porque era uma licenciatura que me atraiu, também dado o meu gosto pelas línguas e também querer obter uma proficiência mais elevada, tanto em **espanhol**, que foi o meu **minor**, que o **inglês**, que foi o meu **major**.
