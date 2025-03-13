@@ -1,4 +1,4 @@
-# O meu Percurso Académico: da Licenciatura ao Mestrado
+# O meu Percurso Académico: da licenciatura ao mestrado
 
 ## O que o levou a escolher a licenciatura que concluiu?
 
