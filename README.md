@@ -1,7 +1,9 @@
 ## Entrevista Piloto: A Primeira Edição  
 
 **Entrevistadora:** Fátima 
+
 **Entrevistado:** Alex 
+
 **Data:** 13 de Março de 2025  
 
 ![Entrevista Piloto](entrevista_piloto.jpeg)  
