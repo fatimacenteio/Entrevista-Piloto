@@ -10,6 +10,4 @@
 
 **Descrição da Fotografia:**
 
-A fotografia intitulada "Entrevista Piloto: A Primeira Edição" apresenta o entrevistado Alex, à esquerda, com um olhar descontraído, e a entrevistadora Fátima, representada por uma figura ilustrativa, à direita. O fundo neutro realça o foco na interação entre ambos, enquanto o título "Entrevista Piloto" destaca o carácter experimental desta primeira edição.
-
-
+A fotografia intitulada Entrevista Piloto: A Primeira Edição apresenta Fátima, a entrevistadora, e Alex, o entrevistado. A imagem capta a interação entre ambos, com um fundo neutro que realça a natureza experimental desta primeira edição.
